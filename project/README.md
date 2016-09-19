@@ -1,4 +1,4 @@
-
+Please follow the following instructions 
 
 
 Download  and extract the copy zip
